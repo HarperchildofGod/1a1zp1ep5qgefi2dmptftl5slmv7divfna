@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Satoshi Nakamoto
+- 👋 Hi, I’m Satoshi Nakamoto aka Jedidiah Thomas Woodrow known as Thomas Woodrow Harper 
 - 👀 I’m interested in BITCOIN
 - 🌱 I’m currently learning BITCOIN
 - 💞️ I’m looking to collaborate on BITCOIN
